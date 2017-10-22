@@ -1,1 +1,0 @@
-# paul_moskalik-github.io
